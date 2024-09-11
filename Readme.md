@@ -1,3 +1,3 @@
 Integrantes:
--Luna Padilla Luis Donaldo
+-Estrella Rodríguez Nancy Anahí
 -Guzman Gutierrez Jorge Alberto
